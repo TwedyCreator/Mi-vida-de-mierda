@@ -1,4 +1,4 @@
-# Mi-vida-de-mierda
+# Mi vida de mierda
 
 
 1*)Hola pendejos que vayan a leer esta mierda.
