@@ -53,3 +53,8 @@ Desde el principio de los tiempos los seres humanos hemos utilizado toda clase d
 15*)Hoy es 15/07/2020
 Las mentiras han sido recursos indispensables para el desarrollo humano, algunas perosnas utilizan este recurso para aparentar ser una persona completamente diferente a lo que son en realidad, por ejemplo, muchas personas aparentan tener una vida de ricos con unos buenos padre cuando la realidad es que sus padres estan diborciados y ambos le pegan, pasan por una crisis economica, la persona se droga, se corta, etc.
 Cuando una persona aparenta ser otra se debe a que esta no esta feliz o satisfecha con la vida vida que le toco vivir, entonces como todos usan la tecnologia para tapar eso y "reescribir" su vida a su antojo, en alguna ocasion de nuestra vida todos hemos intentado aparentar ser otra persona, durante mas de 3 años de mi vida aperente ser una persona feliz, interesada por tener amigos, etc, Cuando una persona se pone una mascara puede hacer lo que quiera debido a que nadie conoce su verdadero rostro, por ejemplo, la mayoria de personas que roban usan una mascara o algo que tape su cara debido a que no quieren que sepan quienes son.
+
+16*)Hoy es 16/07/2020
+Odio los sentimientos humanos debido a que no puedo entenderlos pero si sentirlos, por ejemplo, el amor, no lo entiendo pero tampoco lo quiero tener pero de akguna outa manera lo siento por una persona no se porque!!!!!!, me quiero pegar un puto tiro, no quiero pasar por lo que pasan **TODOS** los adolecentes con el amor, (enamoramiento, depresio por el amor, etc), no quiero!!!!!!!!
+Tampoco quiero sentir nada sentimental hacia nadie, [;  ;] no quier, no quiero.
+Alguien digame como mierda se puede dejar de sentir algo por alguien.
