@@ -56,5 +56,5 @@ Cuando una persona aparenta ser otra se debe a que esta no esta feliz o satisfec
 
 16*)Hoy es 16/07/2020
 Odio los sentimientos humanos debido a que no puedo entenderlos pero si sentirlos, por ejemplo, el amor, no lo entiendo pero tampoco lo quiero tener pero de akguna outa manera lo siento por una persona no se porque!!!!!!, me quiero pegar un puto tiro, no quiero pasar por lo que pasan **TODOS** los adolecentes con el amor, (enamoramiento, depresio por el amor, etc), no quiero!!!!!!!!
-Tampoco quiero sentir nada sentimental hacia nadie, [;  ;] no quier, no quiero.
+Tampoco quiero sentir nada sentimental hacia nadie, [;__;] no quier, no quiero.
 Alguien digame como mierda se puede dejar de sentir algo por alguien.
