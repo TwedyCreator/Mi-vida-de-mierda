@@ -58,3 +58,11 @@ Cuando una persona aparenta ser otra se debe a que esta no esta feliz o satisfec
 Odio los sentimientos humanos debido a que no puedo entenderlos pero si sentirlos, por ejemplo, el amor, no lo entiendo pero tampoco lo quiero tener pero de akguna outa manera lo siento por una persona no se porque!!!!!!, me quiero pegar un puto tiro, no quiero pasar por lo que pasan **TODOS** los adolecentes con el amor, (enamoramiento, depresio por el amor, etc), no quiero!!!!!!!!
 Tampoco quiero sentir nada sentimental hacia nadie, [ ; __ ; ] no quier, no quiero.
 Alguien digame como mierda se puede dejar de sentir algo por alguien.
+
+17*)Hoy es 23/07/2020
+El cuerpo humano es facinante, les hago una pregunta, cuando ustedes mueven su cuerpo es casi automatico, y asi de facil como lo hacemos, asi de facil nos podemos olvidar de como hacer muchas cosas como por ejemplo, respirar, parpadear, mover partes de nuestro cuerpo, etc.
+Miremos a Estephen Howkins, el era un muchacho comun y corriente con una gran inteligencia, y de poco en poco no tuvo mas control sobre sus brazos ni piernas, luego perdio el habla, y se valia para caminar gracias a una silla de ruedas, para comunicarse con la gente con una voz robotizada.
+Estephen estubo casado y tuvo 3 hijos con su esposa llamada Jane, pero como todas las cosas no duran para siempre, Jane se empezo a enamorar del profesor de piano de su hijo, al final se separaron y cada uno sigui su vida.
+A que quiero llegar con todo esto?
+Pues muchos me dicen que los medicos se pueden equivocar respecto a a esperanza de vida de alguien, por ejemplo Estephen Howkins le dijeron que viviria como maximo dos años mas de su vida, llego a vivir mas de 20 años despues de esa noticia, pero a que costo?, perdio la movilidad de piernas, brazos, torso y mandivula.
+Yo no quiero vivir con mas discapacidades de las que ya tengo y menos con dolores mucho mas fuertes de los que he llegado a sentir.
