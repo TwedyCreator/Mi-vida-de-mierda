@@ -66,3 +66,8 @@ Estephen estubo casado y tuvo 3 hijos con su esposa llamada Jane, pero como toda
 A que quiero llegar con todo esto?
 Pues muchos me dicen que los medicos se pueden equivocar respecto a a esperanza de vida de alguien, por ejemplo Estephen Howkins le dijeron que viviria como maximo dos años mas de su vida, llego a vivir mas de 20 años despues de esa noticia, pero a que costo?, perdio la movilidad de piernas, brazos, torso y mandivula.
 Yo no quiero vivir con mas discapacidades de las que ya tengo y menos con dolores mucho mas fuertes de los que he llegado a sentir.
+
+18*)Hoy es 04/08/2020
+Todo tiene que llegar a su fin, tarde o temprano todo se acaba, en este caso hasta aqui llega lo que he escrito y lo que supuestamente era para mi solo ya que se lo termine mostrando a un monton de gente de mi colegio y de otro colegio, en fin, en primer lugar no se porque le mostre este escrito a tanta gente, al principio este escrito iva a ser solo para mi pero por alguna razon se lo termine mostrando a personas que considero llevan una vida peor a como yo la llevo, a lo que me refiero esque la mayoria de personas a las que les he mostrado este escrito es porque considero que tienen muchos problemas en su vida o relacion y no tienen la "fuerza" para aceptarloo seguir adelante, en cambio unas pocas personas les mostre estre escrito para saber como me responderian (si es que me llegaban a devolver el mensaje) de esta manera podia determinas la cantidad de problemas que esa persona tiene y cuantos ha podido superar a lo largo del tiempo si es que han logrado superar alguno.
+
+Fue una gran experiencia recolectar tanta informacion y poder seguir escribiendo, pero tristemente (para mi) esto tiene que terminar asi que un placer y Chao.
